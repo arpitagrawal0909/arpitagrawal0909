@@ -1,4 +1,4 @@
-👋 Collaborate with me so as to deep dive into software stuff
+👋 Learning git, learning software 
 
 
 
